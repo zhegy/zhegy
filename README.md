@@ -1,16 +1,17 @@
-## Hi there 👋
+日本不良网站正能量进入大豆日本正能量不良直接进入滋水
 
-<!--
-**zhegy/zhegy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+最后一句刘昴星用了中文，对方的日语有些奇怪，而且又是黑发黑瞳，刘昴星自然会有些猜测。
+
+    “咦？你就是刘昴星吧？我叫高唯，旅法华人，快进来吧！我们正缺人手！”高唯一副终于又有劳动力了的表情。
+
+    看来高唯平时应该都在法国，中文也有些生疏，不过刘昴星确实猜对了。
+
+    “恩？刘昴星，已经来了？快，别愣着了！快换上衣服，今天必须把最后的木工和清洁完成才行，不然就要影响明天的营业了！”
+
+    四宫小次郎见到刘昴星之后，也丝毫没有客气一下的意思。
+
+    “真是差别待遇啊！之前在‘春果亭’只需要出舌头就可以的……”刘昴星嘴上抱怨着，不过已经直接将四宫递过来的干活的围裙、帽子、手套带好了。
